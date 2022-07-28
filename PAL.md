@@ -13,6 +13,19 @@ On aime lire, et lire nous inspire.
 - Madeline Miller, *Circé*
 - Erickson, saga *Le livre des martyrs* 
 
+### Fantasy Chinoise 
+Je la mets un peu à part de la Fantasy occidentale, parce qu'elle répond à des codes et des genres particuliers. De même, la scène Fantasy Chinoise explore beaucou plus le webnovelle que ce à quoi nous sommes habitués en France, avec ses sous-genres (Xianxia, Moderne…)qui ne correspondent pas dans leurs définitions à celles établies par nos éditeurs en France. Littérature à découvrir et explorer! Pour l'instant, j'ai reçu des recommandations pour des romances "boys love", à savoir des couples d'homme essentiellement, mais d'autres existent et s'ajouteront à mesure de nos explorations! =^^=
+
+- Feitian,
+	- *Seizing Dreams (Modern Fantasy)* 
+- Mo Xiang Tong Xiu (MXTX)
+	- *Tian Guan Ci Fi "Heaven Official's Blessing" (TGCF) (Xianxia)*
+- Meatburn Doesn't Eat Meat 
+	- *Er Ha Hé Ta De Bai Mao Shi Zun (The Husky and his whith Cat Shizan) (Xianxia)*
+	- *I ship my adversary X me (Moderne)* 
+- Priest 
+	- *Sha Po Lang (SPL) (Xianxia)* 
+
 ## Nature, végétal à l'honneur : 
 - Jean Dorst, *Avant que nature meure*
 - Rachel Carson, *Silent Spring* 
