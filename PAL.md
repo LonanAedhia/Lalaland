@@ -2,7 +2,8 @@
 On aime lire, et lire nous inspire. 
 
 **Table des matières :**
-- 
+- [1 - Fiction](https://github.com/LonanAedhia/Lalaland/blob/main/PAL.md#1-fiction-)
+- [2 - Non-fiction](https://github.com/LonanAedhia/Lalaland/blob/main/PAL.md#2-non-fiction-)
 
 # 1 Fiction : 
 ## Fantasy : 
